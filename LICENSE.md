@@ -1,10 +1,10 @@
-مميز NordVPN تطبيق | دعم WireGuard + IP مخصص هو أفضل NordVPN تطبيق مع دعم WireGuard و IP مخصص. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/nordvpn-kf88/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
