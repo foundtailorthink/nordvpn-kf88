@@ -1,4 +1,4 @@
-
+مميز NordVPN تطبيق | دعم WireGuard + IP مخصص هو أفضل NordVPN تطبيق مع دعم WireGuard و IP مخصص. آمن ومُحَسّن.
 
 
 
